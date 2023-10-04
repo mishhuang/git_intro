@@ -1,1 +1,2 @@
 Michelle Huang
+huanmich@oregonstate.edu
